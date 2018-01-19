@@ -9,7 +9,7 @@
 - Book is Hillbilly-opoly?
 
 ### Steve Young
-- Not everything has to be a zero-sum game
+- Not everything has to be a zero-sum game. We can have an abundance mentality
 - His head coach would yell at his assistants rather than yelling at the players and tell them that they need to coach better. Motivated him to be better as he felt bad that he was the cause of someone else's pain
 - Surround yourself with people who will tell you what you don't want to hear, but need to
 
