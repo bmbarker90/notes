@@ -15,3 +15,15 @@
 
 ### Joel Spolsky
 - How successful a company is is dependent on how well do they execute on software - even if they aren't selling the software
+
+## Friday 1/19/18
+
+### Mitt Romney
+- If you aren't afraid going into something, you aren't being bold enough
+- Don't just muddle along - have a vision for where you want to godd
+- Recessions are the result of irrational behavior - and it's hard to predict irrational behavior
+
+### Susan St. Ledger
+- Hindsight is always 20/20, so ignoring it is foolish
+- If you are driving transformation, you have to continually explain the why
+  - If you're the one rolling it out, you've probably already had month to think about it. Remember that those you are rolling it out to don't
